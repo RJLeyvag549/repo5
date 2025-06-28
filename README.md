@@ -1,7 +1,16 @@
 Linea de texto
 a
-waza
+sergei :V
 aña
 xd
+
+awdawd
+aawd
+awdadw
+tailinadaso
+awdawdawdaa
+awdwad
+
+
 
 
